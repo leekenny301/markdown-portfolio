@@ -1,1 +1,1 @@
-https://www.linkedin.com/in/kenny-lee-yuan-hong/ [My LinkedIn profile]
+[My LinkedIn profile] (https://www.linkedin.com/in/kenny-lee-yuan-hong/)
